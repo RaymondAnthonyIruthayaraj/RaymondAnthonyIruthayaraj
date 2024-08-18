@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Raymond
+- 👀 I’m interested in Automobiles, Cloud Services
+- 🌱 I’m currently learning B.E., EEE @Loyola-ICAM College of Engineering and Technology
+- 💞️ I’m looking to collaborate on Core/IT Sectors
+- 📫 Reach me, IG: raymondantoshan , LinkedIn: Raymond A
+- 😄 Speaks English, French, Tamil
+- ⚡ Fun fact: An Adrenaline Junkie
